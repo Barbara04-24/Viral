@@ -1,2 +1,1 @@
-[![Tonton videonya](https://raw.githubusercontent.com/Barbara04-24/Viral/main/assets/video.mp4)
-(https://raw.githubusercontent.com/Barbara04-24/Viral/main/assets/sw.js)
+[](https://github.com/user-attachments/assets/0dde8472-d25d-46ff-b6e9-eefbb1937d57)
